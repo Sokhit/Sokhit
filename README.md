@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Sokhit
 - 👀 I’m interested in IT reasearching.
-- 🌱 I’m currently learning IT at Year4.
+- 🌱 I’m currently graduated BA in IT.
 - 💞️ I’m looking to collaborate on coding club, administrative team.
 - 📫 How to reach me by facebook account Kan So Khit.
 
